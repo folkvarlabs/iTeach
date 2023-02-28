@@ -1,4 +1,4 @@
-![alt text](https://media.discordapp.net/attachments/1051385609769472020/1079979811025457213/cywf_Education_Learing_Companionship_AI_Community_Inclusivity_D_78f39aef-1d78-4351-8fa6-23247cfd72d3.png)
+![alt text](https://media.discordapp.net/attachments/1051385609769472020/1080002900060819516/cywf_Education_Learing_Companionship_AI_Community_Inclusivity_D_9c154e83-563b-4f8a-9f03-bbdde6202f72.png)
 
 # iTeach
 
